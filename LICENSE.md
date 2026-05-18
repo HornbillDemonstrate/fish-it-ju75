@@ -1,4 +1,4 @@
-#  
+#  Principal escape tsunami for brainrots scripts es el mejor escape tsunami for brainrots scripts con ESP y auto-recolección. Seguro, confiable y optimizado para el máximo
 
 
 
